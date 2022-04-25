@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Talant888
+- 👀 I’m interested in building blockchain
+- 🌱 I’m currently learning new way to earn
+- 💞️ I’m looking to collaborate on new hopefull progects
+- 📫 How to reach me churakovao@gmail.com
